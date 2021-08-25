@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @greyestech
+- 👀 I’m interested in eat just in time
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on every project that keep my interest
+- 📫 How to reach me: greyes@teknik.mx
